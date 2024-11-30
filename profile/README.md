@@ -54,6 +54,8 @@
 ## ช่องทางการติดต่อ
 - โทร: 096-282-6245
 - อีเมล: ak.insure.hub@gmail.com
-- LINE: @ak.insure.hub
 - Facebook: [เอเค อินชัวร์ ฮับ ](https://www.facebook.com/share/19bDiq872p/?mibextid=LQQJ4d)
 - IG: [ak.insure.hub](https://www.instagram.com/ak.insure.hub?igsh=ZW51aHEzb3QwaHdx&utm_source=qr)
+- LINE: [@ak.insure.hub](https://lin.ee/tSlYJMb)
+
+<a href="https://lin.ee/tSlYJMb"><img src="https://scdn.line-apps.com/n/line_add_friends/btn/th.png" alt="เพิ่มเพื่อน" height="36" border="0"></a>
